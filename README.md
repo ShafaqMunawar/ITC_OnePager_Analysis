@@ -30,8 +30,8 @@ This repository contains a one-page financial and strategic profile of **ITC Lim
 **Shafaq Munawar** – Finance learner and aspiring analyst with hands-on projects in financial modeling and research.
 
 ## 📬 Contact
-Feel free to connect or collaborate via [LinkedIn](https://www.linkedin.com/in/shafaq-munawar/)  
-📧 Email: [your_email@example.com] (if you wish to include)
+Feel free to connect or collaborate via inkedin.com/in/shafaq-munawar1111
+📧 Email: shafakmunawar@gmail.com (if you wish to include)
 
 ---
 
